@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @0rigin-All
 - 👀 I’m interested in GAME OH THRONES and embeter Jules
 - 🌱 I’m currently learning machine
-- 💞️ I’m looking to collaborate on UwU
+- 💞️ I’m looking to collaborate on UꞷU
 - 📫 How to reach me : it's croissant not qwassant
 
 <!---
